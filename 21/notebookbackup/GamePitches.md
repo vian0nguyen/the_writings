@@ -32,8 +32,70 @@ RE: pack master, HERstory, [unpacking game](https://www.unpackinggame.com)
 * try to store them away
 * nest, nest, nest
 
-##a game about gatekeeping
+## a game about gatekeeping
 hold power by rejecting people and accepting pure examples
+
+## A Quiet Space On the Internet
+* random site generator to give people space
+ * keyboard yoga
+ * hopes + dreams forum
+
+## Minecraft Monopoly
+* jail is cobwebs
+* resources blocks
+* sell to traders
+* pass go get emeralds
+
+## social Negotiation game (RPG)
+(RE: bluebeard's bride)
+* house party
+* 2 gms one player
+* gms play different guests
+* player appears good and kind - get everyone to like you
+* (SECRET) player GOAL - something selfish
+Player experience goal: enable me to see the worst possible outcome of social anxiety fears and know it will be okay
+
+## Online Networked play
+* grow together
+* google sheets?
+* digital version of we're intertwined
+
+## We're on the same soundwave
+music journaling game - duet?
+* pick a song
+* pick one line of a lyric that encapsulates your day
+* in response, write a line response from another song
+
+## reverse of super hot
+* you move normal and everyone moves super fast around you
+* try to get out and avoid everyone
+
+## clam up!
+* game about social anxiety
+* where opening up is hard
+* clamming up is a move
+* sorting game, sort through responses
+* have a convo?
+
+## social game for playing while an ad loads when you're watching a show with a friend
+
+## diaspora 1st gen divorcee game
+* play through vietnamese creation myth
+* game will always end with the dragon and fairy splitting up
+* play as the children
+* who do you choose to go with?
+ * decision is colored by playing through memories with the dragon + fairy each answering a question
+### RESOLUTION SYSTEM
+* verbs, what verb do you want players to do?
+### OPEN Qs
+* what is the game about?
+ * draw cards? write in diary -> inspo ben roswell's shared cathedrals and Ocean Vuong
+* What do characters do?
+
+## something about archives in the asian diaspora 
+(RE: ho chi minh)
+* who deserves to tell the truth?
+* whose story deserves to be told?
 
 ## Vampire Hunter (game)
 _as metaphor for the wealthy that leech off society_
@@ -47,15 +109,15 @@ _as metaphor for the wealthy that leech off society_
 * solve puzzles
 
 ## one action per day game
-###gameplay: chess, abstract strategy game
+### gameplay: chess, abstract strategy game
 * time, investment, journaling, growth
-###can it be narrative?
+### can it be narrative?
   * end of move, take note in journal
   * maybe it _has_ to be narrative
 * what makes waiting satisfying?
 * multiplayer, group investment
   * (RE: drawquest??)
-###temporal mechanics
+### temporal mechanics
   * Chronology
   * time limits - tense + hectici gameplay (dev pressure)
   * speed rung?? - mastery (player pressure)
@@ -128,7 +190,12 @@ RE: wario ware
   * sense of danger - move person out of the way
   * sense of time - move clock hands
 
-##Empath's dilemma
+## Empath's dilemma
 * see what you think someone needs/how they feel
 * be proven wrong - your analysis of the situation is a projection of your own needs.
 
+## Hi courtney -erin
+send messages to your community using nature's toys
+* sticks and rocks
+* messages in plain sight
+* who is noticing?
