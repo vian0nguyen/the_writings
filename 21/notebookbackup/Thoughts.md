@@ -11,6 +11,9 @@ perhaps people don't worry about me and my future cause they can tell how much I
 * at does it mean to inherit generational truama? 
 * at does it mean to lose someone you love and have that push you to be a hero?
 
+## translation
+I get really sad when i think about translations. Like an admission she sees how I feel and she does not understand it. Her translations, I cannot read but those around us can. They look and decry them, unfeeling, without care. And what does that mean for us? I can't verify it but I do call upon those moments. How easy it is to blanket our together with knowledge that we meant nothing...or at least something else. In my heart, it feels like I'll always be holding you but I will not say because you never told me that I was in your plan. I will not assume I get a spot in your life as you should not assume I'll be here for you forever.
+
 # resources
 ## can i use.com
 tells you what css and html rules are supported by which browsers
