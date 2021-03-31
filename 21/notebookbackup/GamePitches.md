@@ -199,3 +199,6 @@ send messages to your community using nature's toys
 * sticks and rocks
 * messages in plain sight
 * who is noticing?
+
+## Oops sorry I'm a huge monster
+LARP as a kaiju and try to reduce the amount of harm you will inevitably inflict on the citizens due to your size.
