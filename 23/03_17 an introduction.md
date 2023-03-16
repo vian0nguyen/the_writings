@@ -11,7 +11,7 @@ I make games, yes like mario but like hopscotch too.
 
 What games have I made? I can definitely count on my hands the amount of times my name has been in credits. But i don't think that will satisfy your curiosity. If you're actually asking me, well, what are games anyway?
 
-Getting to know someone is moving through a labyrinth that you trust will get you where you must be. Grief is a hand of cards I build to create a magical circle where its safe to speak the unspeakable. Living in a new home can be a roleplaying game about what spirits might live in your spaces and how you become one too.
+Getting to know someone is moving through a labyrinth that you trust will get you where you must be. Grief is a deck of cards we use to create a magical circle where its safe to speak the unspeakable. Living in an unfamiliar home is a roleplaying game about what spirits might live in your spaces and how you become one too.
 
 Why make games? Definitely not for the money. But, definitely for the small version of me gripping a controller beside my brother, sharing space the only way we knew how. That version of me didn't think it was possible to design or make games. 
 
