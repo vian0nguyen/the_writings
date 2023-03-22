@@ -9,7 +9,7 @@ And no, I can't get you Vbucks and no I don't play league and I wont start now.
 
 I make games, yes like mario but like hopscotch too.
 
-What games have I made? I can definitely count on my hands the amount of times my name has been in credits. But i don't think that will satisfy your curiosity. If you're actually asking me, well, what are games anyway?
+What games have I made? I can definitely count on only one hand the times my name has been in credits. But i don't think that will satisfy your curiosity. If you're actually asking me, well, what are games anyway?
 
 Getting to know someone is moving through a labyrinth that you trust will get you where you must be. Grief is a deck of cards we use to create a magical circle where its safe to speak the unspeakable. Living in an unfamiliar home is a roleplaying game about what spirits might live in your spaces and how you become one too.
 
