@@ -19,4 +19,6 @@ Financially, on paper I'm okay but not putting away money for my savings for a y
 
 Weirdly though, in a parallel universe where my parents money is plentiful: we bought s house! in Virginia! Minh and Jaz live there for now and are paying off the mortgage. It's super adorable and exciting to have property in my name.
 
-Some strides have hapoened with Family too. I'm self reflecting and accepting my mom cannot provide me with emoti
+Some strides have hapoened with Family too. I'm self reflecting and accepting my mom cannot provide me with emotional support and that i cant really call her when im in it deep. But, knowing that she loves me in her own way as a reflection of her experience is what ive been needing.
+
+Today (1/26) Ive been having annexistential crisis about where my passion lies. Why go into games at all and what hope do i find for myswlf when the times stay dark? I want to find my spirit again and my joy in making for myself, without prospect of production or profit. my joy in making in expression. i need to move past my fearnof survival and fear of nonproductive time and just create anything. For the sake of nurturing my hope.
